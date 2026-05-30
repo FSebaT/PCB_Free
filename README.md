@@ -52,4 +52,4 @@ World Developers Maker (WDM)
 
 Consultas técnicas, comerciales, personalizaciones y Programa de Partners:
 
-[contacto@wdm.ar](+54 3765-159615)
+[wdmakerok@gmail.com](+54 3765-159615)
